@@ -1,0 +1,1 @@
+# Datalogic-Coding-Challenge-2024-2025-Sticker-Segmentation-and-Classification-Problem-Statement-
